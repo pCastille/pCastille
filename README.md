@@ -1,3 +1,5 @@
 Pearl 
--she/her
--contact at Cast.purll@gmail.com
+
+she/her
+
+contact at Cast.purll@gmail.com
